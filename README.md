@@ -4,4 +4,6 @@ Happy Graduation!
 
 Check out the purses!
 
+Wohoo!
+
 :)
