@@ -1,2 +1,7 @@
-# JanGraduation
-Jan Graduation
+Hello Jan, 
+
+Happy Graduation!
+
+Check out the purses!
+
+:)
